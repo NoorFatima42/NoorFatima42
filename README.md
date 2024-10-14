@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **GitHub, Jira, Team Building**
 
-- 📫 How to reach me **noorsardar@focuspass.com**
+- 📫 How to reach me **noorsardar42@gmail.com**
 
 - ⚡ Fun fact **I think I am collaborative**
 
